@@ -51,8 +51,8 @@ The project is designed to provide a seamless experience for both **users** and 
 
 ## 📫 Contact  
 For any questions or collaboration requests, feel free to reach out!  
-- Email: [your-email@example.com]  
-- LinkedIn: [your-linkedin-profile]
+- Email: [abdulrahmantamersayed@gmail.com]  
+- LinkedIn: [www.linkedin.com/in/abdulrhman-tamer-9b5482320]
 
 ---
 
